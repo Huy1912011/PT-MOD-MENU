@@ -1,6 +1,6 @@
 ### Play Together VNG MOD MENU (Androird)
 
-🛡️ANTIBAN ??? [TÙY NGƯỜI DÙNG❗]
+🛡️ANTIBAN ??? [ TÙY NGƯỜI DÙNG❗]
 
 ⚠️Dùng lộ quá thì bay❗
 
