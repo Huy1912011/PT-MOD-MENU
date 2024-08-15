@@ -10,6 +10,8 @@
 
 ### 🔑Key Free Hôm Nay🔑 
 
+Key Của Menu Apple🍏
+
 KEY15/8_24H_9999TB_OgNuocYeDn
 
 Ngày: 15/8/2024
@@ -19,3 +21,7 @@ Hết hạn vào 0h hôm sau!
 Hạn Sử Dụng: 24 Giờ
 
 Tối Đa Thiết Bị: 9999
+
+### 🔑Get Key🔑
+
+Key Chủ Menu [HMG](https://hmgteam.net/GETKEY/vipadminkey)
