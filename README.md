@@ -4,7 +4,7 @@
 
 2. Link Smart AutoClicker [Anti-Detection] [https://drive.google.com/file/d/1qYp-WWs59DgSHlFIXQRHReeYTTmlD4VO/view?usp=drivesdk](https://drive.google.com/file/d/1qYp-WWs59DgSHlFIXQRHReeYTTmlD4VO/view?usp=drivesdk)
 
-🌸 𝗞𝗘𝗬 𝗙𝗥𝗘𝗘 𝗛𝗢̂𝗠 𝗡𝗔𝗬
+🔑𝗞𝗘𝗬 𝗙𝗥𝗘𝗘 𝗛Ô𝗠 𝗡𝗔𝗬🔑
 
 KEY15/8_24H_9999TB_OgNuocYeDn
 
