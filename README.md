@@ -32,15 +32,19 @@ Key Chủ Menu [HMG](https://hmgteam.net/GETKEY/vipadminkey)
 
 ⚠️Dùng lộ quá thì bay❗
 
+[Video Hướng dẫn Cài](https://youtu.be/-kMpENr0hZ0?si=Etp31KFEHzCLtNrN)
+
 1. [Island](https://play.google.com/store/apps/details?id=com.oasisfeng.island)
 
 2. [Virtual Android 32-bit](https://www.mediafire.com/file/l3d6zwcrkounhzb/virtual+32bit.zip/file)
 
-3. [MENU APK](https://www.mediafire.com/file/08u05yim9zvcx8i/MENY_R%25E1%25BB%259CI_PT_%2528NOVA_MOD%2529.apk/file)
+3. [App Fix Virtual](https://www.mediafire.com/file/q7ublftid3v0afj/App-Fix-Virtual.apk/file) (Android 12)
 
-4. [Play Together](https://play.google.com/store/apps/details?id=com.haegin.playtogether)
+4. [MENU APK](https://www.mediafire.com/file/08u05yim9zvcx8i/MENY_R%25E1%25BB%259CI_PT_%2528NOVA_MOD%2529.apk/file)
 
-5. [Play Together VNG](https://play.google.com/store/apps/details?id=com.vng.playtogether)
+5. [Play Together](https://play.google.com/store/apps/details?id=com.haegin.playtogether)
+
+6. [Play Together VNG](https://play.google.com/store/apps/details?id=com.vng.playtogether)
 
 #### 🔑Get Key🔑
 
