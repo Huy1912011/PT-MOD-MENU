@@ -32,5 +32,6 @@ Key Chủ Menu [HMG](https://hmgteam.net/GETKEY/vipadminkey)
 
 2. Apk?
 
-3. [Get Key Link Chính](https://mneylink.vip/KNhJuHwT)
+3. [Get Key Link Chính (Đang lỗi)](https://mneylink.vip/KNhJuHwT)
+
 [Get Key Link Phụ](https://yeumoney.com/M-KzbDS)
