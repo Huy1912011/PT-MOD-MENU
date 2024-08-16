@@ -1,6 +1,6 @@
 ### Play Together VNG MOD MENU APK (Androird)
 
-🛡️ANTIBAN ??? [ TÙY NGƯỜI DÙNG❗]
+🛡️ANTIBAN ✅ [ TÙY NGƯỜI DÙNG❗]
 
 ⚠️Dùng lộ quá thì bay❗
 
@@ -28,7 +28,7 @@ Key Chủ Menu [HMG](https://hmgteam.net/GETKEY/vipadminkey)
 
 ### MENU RỜI PT BY NOVA MOD (Root, Android)
 
-🛡️ANTIBAN ??? [ TÙY NGƯỜI DÙNG❗]
+🛡️ANTIBAN ✅ [ TÙY NGƯỜI DÙNG❗]
 
 ⚠️Dùng lộ quá thì bay❗
 
