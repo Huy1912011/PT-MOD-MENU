@@ -1,4 +1,4 @@
-### Play Together VNG MOD MENU (Androird)
+### Play Together VNG MOD MENU APK (Androird)
 
 🛡️ANTIBAN ??? [ TÙY NGƯỜI DÙNG❗]
 
@@ -8,7 +8,7 @@
 
 2. [Link Smart AutoClicker Anti-Detection](https://www.mediafire.com/file/fy42hwcwj3pr418/Smart_AutoClicker_%255BAnti-Detection%255D.apk/file)
 
-### 🔑Key Free Hôm Nay🔑 
+#### 🔑Key Free Hôm Nay🔑 
 
 Key Của Menu Apple🍏
 ```
@@ -22,6 +22,15 @@ Hạn Sử Dụng: 24 Giờ
 
 Tối Đa Thiết Bị: 1999
 
-### 🔑Get Key🔑
+#### 🔑Get Key🔑
 
 Key Chủ Menu [HMG](https://hmgteam.net/GETKEY/vipadminkey)
+
+### MENU RỜI PT (Root, Android)
+
+1. [Virtual Android 32-bit](https://www.mediafire.com/file/l3d6zwcrkounhzb/virtual+32bit.zip/file)
+
+2. Apk?
+
+3. [Get Key Link Chính](https://mneylink.vip/KNhJuHwT)
+[Get Key Link Phụ](https://yeumoney.com/M-KzbDS)
