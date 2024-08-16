@@ -32,6 +32,8 @@ Key Chủ Menu [HMG](https://hmgteam.net/GETKEY/vipadminkey)
 
 2. [MENU APK](https://www.mediafire.com/file/08u05yim9zvcx8i/MENY_R%25E1%25BB%259CI_PT_%2528NOVA_MOD%2529.apk/file)
 
-3. [Get Key Link Chính (Đang lỗi)](https://mneylink.vip/KNhJuHwT)
+#### 🔑Get Key🔑
 
-   [Get Key Link Phụ](https://yeumoney.com/M-KzbDS)
+[Link Chính](https://mneylink.vip/KNhJuHwT) (Đang lỗi)
+
+[Link Phụ](https://yeumoney.com/M-KzbDS)
