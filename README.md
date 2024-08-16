@@ -28,6 +28,10 @@ Key Chủ Menu [HMG](https://hmgteam.net/GETKEY/vipadminkey)
 
 ### MENU RỜI PT BY NOVA MOD (Root, Android)
 
+🛡️ANTIBAN ??? [ TÙY NGƯỜI DÙNG❗]
+
+⚠️Dùng lộ quá thì bay❗
+
 1. [Virtual Android 32-bit](https://www.mediafire.com/file/l3d6zwcrkounhzb/virtual+32bit.zip/file)
 
 2. [MENU APK](https://www.mediafire.com/file/08u05yim9zvcx8i/MENY_R%25E1%25BB%259CI_PT_%2528NOVA_MOD%2529.apk/file)
