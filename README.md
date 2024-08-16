@@ -26,12 +26,12 @@ Tối Đa Thiết Bị: 1999
 
 Key Chủ Menu [HMG](https://hmgteam.net/GETKEY/vipadminkey)
 
-### MENU RỜI PT (Root, Android)
+### MENU RỜI PT BY NOVA MOD (Root, Android)
 
 1. [Virtual Android 32-bit](https://www.mediafire.com/file/l3d6zwcrkounhzb/virtual+32bit.zip/file)
 
-2. Apk?
+2. [MENU APK](https://www.mediafire.com/file/08u05yim9zvcx8i/MENY_R%25E1%25BB%259CI_PT_%2528NOVA_MOD%2529.apk/file)
 
 3. [Get Key Link Chính (Đang lỗi)](https://mneylink.vip/KNhJuHwT)
 
-[Get Key Link Phụ](https://yeumoney.com/M-KzbDS)
+   [Get Key Link Phụ](https://yeumoney.com/M-KzbDS)
