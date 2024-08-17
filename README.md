@@ -8,6 +8,8 @@
 
 2. [Link Smart AutoClicker Anti-Detection](https://www.mediafire.com/file/fy42hwcwj3pr418/Smart_AutoClicker_%255BAnti-Detection%255D.apk/file)
 
+3. [Link PT MOD MENU BETA](https://www.mediafire.com/file/zijgn0a9mwlse9v/PLAY+TOGETHER+VNG_v2.05.1+(BETA).apk/file)
+
 #### 🔑Key Free Hôm Nay🔑 
 
 Key Của Menu Apple🍏
@@ -22,6 +24,10 @@ Hạn Sử Dụng: 24 Giờ
 
 Tối Đa Thiết Bị: 9999
 
+#### 🔑Key Bản BETA🔑
+```
+PlayBeta_12M_10000TB_rX0zLDsR0F
+```
 #### 🔑Get Key🔑
 
 Key Chủ Menu [HMG](https://hmgteam.net/GETKEY/vipadminkey)
