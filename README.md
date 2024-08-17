@@ -6,9 +6,13 @@
 
 1. [Link PT MOD MENU](https://www.mediafire.com/file/so8mxsj5hum28hx/PLAY+TOGETHER+VNG_v2.05.1.apk/file)
 
-2. [Link Smart AutoClicker Anti-Detection](https://www.mediafire.com/file/fy42hwcwj3pr418/Smart_AutoClicker_%255BAnti-Detection%255D.apk/file)
+2. [Link PT MOD MENU BETA](https://www.mediafire.com/file/zijgn0a9mwlse9v/PLAY+TOGETHER+VNG_v2.05.1+(BETA).apk/file)
 
-3. [Link PT MOD MENU BETA](https://www.mediafire.com/file/zijgn0a9mwlse9v/PLAY+TOGETHER+VNG_v2.05.1+(BETA).apk/file)
+3. [Link Auto Clicker Anti-Detection](https://www.mediafire.com/file/emsyldtsjej2vmb/Auto_Clicker_%255BAnti-Detection%255D.apk/file)
+
+4. [Link Smart AutoClicker Anti-Detection](https://www.mediafire.com/file/fy42hwcwj3pr418/Smart_AutoClicker_%255BAnti-Detection%255D.apk/file)
+
+
 
 #### 🔑Key Free Hôm Nay🔑 
 
