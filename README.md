@@ -12,6 +12,8 @@
 
 4. [Link Smart AutoClicker Anti-Detection](https://www.mediafire.com/file/fy42hwcwj3pr418/Smart_AutoClicker_%255BAnti-Detection%255D.apk/file)
 
+4.1 [Link File Config SAC](https://www.mediafire.com/file/mt9j4mwkki1av7n/AUTO_CLICK_PT_MOD.zip/file) (PT VNG)
+
 5. [Link Auto Click](https://play.google.com/store/apps/details?id=uit.quocnguyen.autoclicker) (Now GG)
 
 #### 🔑Key Free Hôm Nay🔑 
