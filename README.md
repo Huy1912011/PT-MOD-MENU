@@ -52,6 +52,8 @@ Key Chủ Menu [HMG](https://hmgteam.net/GETKEY/vipadminkey)
 
 6. [Play Together VNG](https://play.google.com/store/apps/details?id=com.vng.playtogether)
 
+7. [Superuser](https://www.mediafire.com/file/showmwgq522lsb2/Superuser_1.0.3.0.apk/file) (Virtual Master)
+
 #### 🔑Get Key🔑
 
 1. [Link Chính](https://mneylink.vip/KNhJuHwT) (Đang lỗi)
