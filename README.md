@@ -4,25 +4,23 @@
 
 ⚠️Dùng lộ quá thì bay❗
 
-1. [Link PT MOD MENU](https://www.mediafire.com/file/so8mxsj5hum28hx/PLAY+TOGETHER+VNG_v2.05.1.apk/file)
+1. [Link PT MOD MENU](https://www.mediafire.com/file/ju5dzemqj4kfmof/PLAY_VNG_2.05.2.apk/file)
 
-2. [Link PT MOD MENU BETA](https://www.mediafire.com/file/zijgn0a9mwlse9v/PLAY+TOGETHER+VNG_v2.05.1+(BETA).apk/file)
+2. [Link Auto Clicker Anti-Detection](https://www.mediafire.com/file/emsyldtsjej2vmb/Auto_Clicker_%255BAnti-Detection%255D.apk/file)
 
-3. [Link Auto Clicker Anti-Detection](https://www.mediafire.com/file/emsyldtsjej2vmb/Auto_Clicker_%255BAnti-Detection%255D.apk/file)
+3. [Link Smart AutoClicker Anti-Detection](https://www.mediafire.com/file/fy42hwcwj3pr418/Smart_AutoClicker_%255BAnti-Detection%255D.apk/file)
 
-4. [Link Smart AutoClicker Anti-Detection](https://www.mediafire.com/file/fy42hwcwj3pr418/Smart_AutoClicker_%255BAnti-Detection%255D.apk/file)
+3.1 [Link File Config SAC](https://www.mediafire.com/file/mt9j4mwkki1av7n/AUTO_CLICK_PT_MOD.zip/file) (PT VNG)
 
-4.1 [Link File Config SAC](https://www.mediafire.com/file/mt9j4mwkki1av7n/AUTO_CLICK_PT_MOD.zip/file) (PT VNG)
-
-5. [Link Auto Click](https://play.google.com/store/apps/details?id=uit.quocnguyen.autoclicker) (Now GG)
+4. [Link Auto Click](https://play.google.com/store/apps/details?id=uit.quocnguyen.autoclicker) (Now GG)
 
 #### 🔑Key Free Hôm Nay🔑 
 
 Key Của Menu Apple🍏
 ```
-Keyfree_1D_9999TB_m7T7mKZvKq
+Keyfree_24H_9999TB_cwHVWs4l5L
 ```
-Ngày: 18/8/2024
+Ngày: 19/8/2024
 
 Hết hạn vào 0h hôm sau!
 
@@ -30,10 +28,6 @@ Hạn Sử Dụng: 24 Giờ
 
 Tối Đa Thiết Bị: 9999
 
-#### 🔑Key Bản BETA🔑
-```
-PlayBeta_12M_10000TB_rX0zLDsR0F
-```
 #### 🔑Get Key🔑
 
 Key Chủ Menu [HMG](https://hmgteam.net/GETKEY/vipadminkey)
