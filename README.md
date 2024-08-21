@@ -18,9 +18,9 @@
 
 Key Của Menu Apple🍏
 ```
-Keyfree_24H_9999TB_lAEAv2rQyw
+Free_24H_9999TB_tOZSECEb5T
 ```
-Ngày: 20/8/2024
+Ngày: 21/8/2024
 
 Hết hạn vào 0h hôm sau!
 
@@ -30,7 +30,7 @@ Tối Đa Thiết Bị: 9999
 
 #### 🔑Get Key🔑
 
-Không Free!
+Key Chủ Menu [HMG](https://hmgteam.net/GETKEY/vipadminkey)
 
 ### MENU RỜI PT BY NOVA MOD (Root, Android)
 
