@@ -4,7 +4,7 @@
 
 ⚠️Dùng lộ quá thì bay❗
 
-1. [Link PT MOD MENU](https://www.mediafire.com/file/ju5dzemqj4kfmof/PLAY_VNG_2.05.2.apk/file)
+1. [Link PT MOD MENU](https://www.mediafire.com/file/tg54gk4eese35q4/PLAY+TOGETHER+VNG_2.06.1.apk/file)
 
 2. [Link Auto Clicker Anti-Detection](https://www.mediafire.com/file/emsyldtsjej2vmb/Auto_Clicker_%255BAnti-Detection%255D.apk/file)
 
@@ -18,9 +18,9 @@
 
 Key Của Menu Apple🍏
 ```
-Free_24H_9999TB_tOZSECEb5T
+Free_24H_9999TB_wz64Ng2mmq
 ```
-Ngày: 21/8/2024
+Ngày: 22/8/2024
 
 Hết hạn vào 0h hôm sau!
 
