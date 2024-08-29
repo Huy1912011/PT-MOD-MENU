@@ -30,7 +30,7 @@ Key Chủ Menu [HMG](https://hmgteam.net/GETKEY/vipadminkey)
 
 ### BETA THỬ NGHIỆM PLAY TOGETHER VNG (ANDROID, HMGTEAM)
 
-[MOD MENU PT VNG](https://drive.google.com/open?id=1bV5HEA65ZbSjihYe1AGXeuIh0AENZZ8k&usp=drive_copy)
+[LINK MOD MENU PT VNG](https://drive.google.com/open?id=1bV5HEA65ZbSjihYe1AGXeuIh0AENZZ8k&usp=drive_copy)
 
 KEY THỬ NGHIÊM
 ```
@@ -38,7 +38,7 @@ PlayBeta_12M_10000TB_rX0zLDsR0F
 ```
 VUI LÒNG CHỈ DÙNG KEY NÀY
 
-Tỉ lệ ban cao vui lòng chơi acc clone test!
+⚠️Tỉ lệ ban cao vui lòng chơi acc clone test❗
 
 ### MENU RỜI PT BY NOVA MOD (Root, Android)
 
