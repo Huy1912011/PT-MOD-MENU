@@ -16,17 +16,29 @@
 
 #### 🔑Key Free Hôm Nay🔑 
 
-Key Của Menu Apple🍏
+Key Menu Apple🍏
 ```
-Free_24H_9999TB_v6yNYcsR3P
+???
 ```
-Ngày: 26/8/2024
+Ngày: ?/?/2024
 
 Hết hạn vào 0h hôm sau!
 
 #### 🔑Get Key🔑
 
 Key Chủ Menu [HMG](https://hmgteam.net/GETKEY/vipadminkey)
+
+### BETA THỬ NGHIỆM PLAY TOGETHER VNG (ANDROID, HMGTEAM)
+
+[MOD MENU PT VNG](https://drive.google.com/open?id=1bV5HEA65ZbSjihYe1AGXeuIh0AENZZ8k&usp=drive_copy)
+
+KEY THỬ NGHIÊM
+```
+PlayBeta_12M_10000TB_rX0zLDsR0F
+```
+VUI LÒNG CHỈ DÙNG KEY NÀY
+
+Tỉ lệ ban cao vui lòng chơi acc clone test!
 
 ### MENU RỜI PT BY NOVA MOD (Root, Android)
 
