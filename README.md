@@ -64,6 +64,4 @@ Tỉ lệ ban cao vui lòng chơi acc clone test!
 
 #### 🔑Get Key🔑
 
-1. [Link Chính](https://mneylink.vip/KNhJuHwT) (Đang lỗi)
-
-2. [Link Phụ](https://yeumoney.com/M-KzbDS)
+[GET KEY FREE](https://nova.io.vn/getkey.php)
