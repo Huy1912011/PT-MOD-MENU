@@ -1,5 +1,8 @@
 Play Together MOD MENU APK (Androird)
 -
+
+📢LƯU Ý NÀY GIỜ GAME ĐANG CÓ CHỐNG HACK MỚI CHƯA BIẾT NGUYÊN LÝ BAN CỦA NÓ LÀ GÌ NÊN KHI CHƠI ĐỪNG CHƠI TÀI KHOẢN CHÍNH CHƠI TÀI KHOẢN PHỤ VUI VUI THÌ ĐƯỢC BAN THÌ BÁO LẠI CHO [ADMIN](https://t.me/hoanmegame) TÌNH HÌNH MỚI NHẤT ĐỂ NHANH TRÓNG NGHIÊN CỨU RA ANTI MỚI NHÉ
+
 🛡️ANTIBAN ✅ [ TÙY NGƯỜI DÙNG❗]
 
 ⚠️Dùng lộ quá thì bay❗
