@@ -1,18 +1,16 @@
-### Play Together VNG MOD MENU APK (Androird)
-
+Play Together MOD MENU APK (Androird)
+-
 🛡️ANTIBAN ✅ [ TÙY NGƯỜI DÙNG❗]
 
 ⚠️Dùng lộ quá thì bay❗
 
-1. [Link PT MOD MENU](https://www.mediafire.com/file/tg54gk4eese35q4/PLAY+TOGETHER+VNG_2.06.1.apk/file)
+1. [🇻🇳PT VNG MOD MENU](https://drive.google.com/open?id=1FY0ihZGtRiAO8g3SG_yJ3QqXTcvF9XBa&usp=drive_copy) (Drive)
 
-2. [Link Auto Clicker Anti-Detection](https://www.mediafire.com/file/emsyldtsjej2vmb/Auto_Clicker_%255BAnti-Detection%255D.apk/file)
+1.1 [🇻🇳PT VNG MOD MENU](https://www.mediafire.com/file/rm8f8mmuzaltow1/PLAY+TOGETHER+VNG_2.06.1.apk/file) (Mediafire)
 
-3. [Link Smart AutoClicker Anti-Detection](https://www.mediafire.com/file/fy42hwcwj3pr418/Smart_AutoClicker_%255BAnti-Detection%255D.apk/file)
+2. [🌐PT GLOBAL MOD MENU](https://drive.google.com/open?id=1XgnjfP3cG818Ll516ZEtu1WVW41oCp0r&usp=drive_copy) (Drive)
 
-3.1 [Link File Config SAC](https://www.mediafire.com/file/mt9j4mwkki1av7n/AUTO_CLICK_PT_MOD.zip/file) (PT VNG)
-
-4. [Link Auto Click](https://play.google.com/store/apps/details?id=uit.quocnguyen.autoclicker) (Now GG)
+2.2 [🌐PT GLOBAL MOD MENU](https://www.mediafire.com/file/l3r1c7fg28zxx2g/PLAY+TOGETHER_2.06.2.apk/file) (Mediafire)
 
 #### 🔑Key Free Hôm Nay🔑 
 
@@ -27,18 +25,6 @@ Hết hạn vào 0h hôm sau!
 #### 🔑Get Key🔑
 
 Key Chủ Menu [HMG](https://hmgteam.net/GETKEY/vipadminkey)
-
-### BETA THỬ NGHIỆM PLAY TOGETHER VNG (ANDROID, HMGTEAM)
-
-[LINK MOD MENU PT VNG](https://drive.google.com/open?id=1bV5HEA65ZbSjihYe1AGXeuIh0AENZZ8k&usp=drive_copy)
-
-KEY THỬ NGHIÊM
-```
-PlayBeta_12M_10000TB_rX0zLDsR0F
-```
-VUI LÒNG CHỈ DÙNG KEY NÀY
-
-⚠️Tỉ lệ ban cao vui lòng chơi acc clone test❗
 
 ### MENU RỜI PT BY NOVA MOD (Root, Android)
 
@@ -59,8 +45,6 @@ VUI LÒNG CHỈ DÙNG KEY NÀY
 5. [Play Together](https://play.google.com/store/apps/details?id=com.haegin.playtogether)
 
 6. [Play Together VNG](https://play.google.com/store/apps/details?id=com.vng.playtogether)
-
-7. [Superuser](https://www.mediafire.com/file/showmwgq522lsb2/Superuser_1.0.3.0.apk/file) (Virtual Master)
 
 #### 🔑Get Key🔑
 
