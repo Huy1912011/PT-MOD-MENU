@@ -20,7 +20,7 @@ Key Menu Apple🍏
 ```
 Vng_24H_9999TB_UJZr5KeFcb
 ```
-🌐 KEY GLOBA 🌐
+🌐 KEY GLOBAL 🌐
 ```
 Quocte_24H_9999TB_hwUqMsz9yu
 ```
