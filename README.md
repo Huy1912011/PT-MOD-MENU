@@ -67,3 +67,5 @@ MENU RỜI PT BY NOVA MOD (Root, Android)
 2.2 [File Config Smart AutoClicker](https://www.mediafire.com/file/mt9j4mwkki1av7n/AUTO_CLICK_PT_MOD.zip/file) (PT VNG)
 
 3. [Auto Click](https://play.google.com/store/apps/details?id=uit.quocnguyen.autoclicker) (Now GG)
+
+4. [Nút Home Ảo](https://www.mediafire.com/file/w2rcbzy5btoz6aa/Easy_Touch_ADS_Removed.apk/file) (Now GG)
