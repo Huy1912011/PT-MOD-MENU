@@ -13,23 +13,6 @@ Play Together MOD MENU APK (Androird)
 
 2.2 [🌐 PT GLOBAL MOD MENU](https://www.mediafire.com/file/l3r1c7fg28zxx2g/PLAY+TOGETHER_2.06.2.apk/file) (Mediafire)
 
-#### 🔑Key Free Hôm Nay🔑 
-
-Key Menu Apple🍏
-
-🇻🇳 KEY VNG 🇻🇳
-```
-Vng_2D_9999TB_gqN3ya2eV1
-```
-🌐 KEY GLOBAL 🌐
-```
-Quocte_2D_9999TB_q12qXjCSRE
-```
-
-KEY FREE NGÀY: 2/9/2024
-
-HẾT HẠN VÀO NGÀY: 4/9/2024
-
 #### 🔑Get Key🔑
 
 Key Chủ Menu [HMG](https://hmgteam.net/GETKEY/vipadminkey)
