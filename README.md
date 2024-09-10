@@ -9,7 +9,9 @@ Play Together MOD MENU APK (Androird)
 
 1.1 [🇻🇳 PT VNG MOD MENU](https://www.mediafire.com/file/ix5mmoz6fpo30ds/PLAY+TOGETHER+VNG_2.06.2.apk/file) (Mediafire)
 
-2. 🌐 PT GLOBAL MOD MENU Chưa Update!
+2. [🌐 PT GLOBAL MOD MENU](https://drive.google.com/open?id=1XgnjfP3cG818Ll516ZEtu1WVW41oCp0r&usp=drive_copy) (Drive)
+
+2.2 [🌐 PT GLOBAL MOD MENU](https://www.mediafire.com/file/l3r1c7fg28zxx2g/PLAY+TOGETHER_2.06.2.apk/file) (Mediafire)
 
 #### 🔑Get Key🔑
 
