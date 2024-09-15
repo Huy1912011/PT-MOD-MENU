@@ -31,7 +31,7 @@ MENU RỜI PT BY NOVA MOD (Root, Android)
 
 3. [⚙️App Fix Virtual](https://www.mediafire.com/file/q7ublftid3v0afj/App-Fix-Virtual.apk/file) (Android 12)
 
-4. [👩‍💻MENU APK](https://www.mediafire.com/file/qty7hlqwt0p6me4/System_Nova.apk/file)
+4. [👩‍💻MENU APK](https://www.mediafire.com/file/kvkploxeazxq8rh/app.apk/file?dkey=gghfax9njwm&r=1211)
 
 5. [🌟Play Together](https://play.google.com/store/apps/details?id=com.haegin.playtogether)
 
