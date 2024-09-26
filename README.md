@@ -15,6 +15,10 @@ Play Together MOD MENU APK (Androird)
 
 #### 🔑Get Key🔑
 
+```
+vipadminkey_c4177f68927b
+```
+
 Key Chủ Menu [🔑HMG](https://hmgteam.net/GETKEY/vipadminkey)
 
 MENU RỜI PT BY NOVA MOD (Root, Android)
