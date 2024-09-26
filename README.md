@@ -6,7 +6,7 @@ Play Together MOD MENU APK (Androird)
 ⚠️Dùng lộ quá thì bay❗
 
 #### 📁Tải Mod📁, 🔑Get Key🔑
-
+-NẾU KHÔNG THẤY HÃY LƯỚT XUỐNG DƯỚI TRANG-
 [LINK HMG🌐](https://hmgteam.net/GETKEY/vipadminkey)
 
 MENU RỜI PT BY NOVA MOD (Root, Android)
