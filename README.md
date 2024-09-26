@@ -9,7 +9,7 @@ Play Together MOD MENU APK (Androird)
 
 ---NẾU KHÔNG THẤY HÃY LƯỚT XUỐNG DƯỚI TRANG---
 
-[LINK HMG🌐](https://hmgteam.net/GETKEY/vipadminkey)
+[🌐LINK HMG](https://hmgteam.net/GETKEY/vipadminkey)
 
 MENU RỜI PT BY NOVA MOD (Root, Android)
 -
@@ -27,9 +27,9 @@ MENU RỜI PT BY NOVA MOD (Root, Android)
 
 4. [👩‍💻MENU APK](https://www.mediafire.com/file/kvkploxeazxq8rh/app.apk/file?dkey=gghfax9njwm&r=1211)
 
-5. [🌐Play Together](https://play.google.com/store/apps/details?id=com.haegin.playtogether)
+5. [🌐Play Together](https://play.google.com/store/apps/details?id=com.haegin.playtogether) (Play Store)
 
-6. [🇻🇳Play Together VNG](https://play.google.com/store/apps/details?id=com.vng.playtogether)
+6. [🇻🇳Play Together VNG](https://play.google.com/store/apps/details?id=com.vng.playtogether) (Play Store)
 
 #### 🔑Get Key🔑
 
